@@ -1,2 +1,0 @@
-# AbueloGracias.com
-ty
